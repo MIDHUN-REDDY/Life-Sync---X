@@ -1,1 +1,1 @@
-# Life-Sync---X
+# Life-Sync-X
